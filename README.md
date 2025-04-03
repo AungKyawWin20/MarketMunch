@@ -1,2 +1,2 @@
-# RIch_Indian
+# Rich_Indian
  
